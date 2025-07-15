@@ -37,7 +37,7 @@
 ### 📫 Contato
 
 - ✉️ Email: sara.assessoria2015@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/sara-fran%C3%A7adeveloper/)  
+- 💼 Linkedin: [LinkedIn](https://www.linkedin.com/in/sara-fran%C3%A7adeveloper/)  
 - 🧠 Sempre aprendendo, sempre crescendo 🚀
 
 ---
